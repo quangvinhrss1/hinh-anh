@@ -1,4 +1,3 @@
 hinh-anh
 ========
-
-hinh anh, hinh anh de thuong, hinh anh hai huoc, hinh anh doc, hinh anh tinh yeu, hinh anh vui nhon, hinh anh ngo nghinh, hinh anh thien nhien
+<a href="http://hinhanhdocdao.blogspot.com/">hinh anh</a> <ahref="http://hinhanhdocdao.blogspot.com/2013/11/hinh-anh-658.html">hinh anh de thuong</a>
